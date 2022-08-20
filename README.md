@@ -1,1 +1,0 @@
-# ar-moewi5e6fr
